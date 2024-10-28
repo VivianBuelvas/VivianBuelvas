@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Vivian Buelvas
 - 👀 I’m interested in Computing science
-- 🌱 I’m currently learning the System Engineering carrer at Uninorte
+- 🌱 I’m currently learning the System Engineering career at Uninorte
 - 📫 How to reach me: avivian@uninorte.edu.co
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'm vivian buelvas
